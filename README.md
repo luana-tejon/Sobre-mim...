@@ -1,7 +1,7 @@
 
  # ☝️Informações Pessoais
  - 😤 Luana Tejon Aranega
- - ⌛ 18 anos 23/01/2007
+ - ⌛ 19 anos 23/01/2007
  - 🍃 Brasileira/Paulista
  - 🤖 ADS na Sptech School
 --
